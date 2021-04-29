@@ -1,2 +1,2 @@
-# web-tekno
+# WEB TEKNOLOJİLERİ PROJE ÖDEVİ
 b191210064
